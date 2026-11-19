@@ -1,0 +1,2 @@
+# cv
+berisi tugus kuliah
